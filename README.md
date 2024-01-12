@@ -4,3 +4,12 @@ Follow me for more!
 
 https://mariboscardinphotography.com/
 https://www.instagram.com/mariboscardinphotography/
+
+For newborns: 
+https://mariboscardinphotography.com/houston-newborn-photographer
+
+For Maternity: 
+https://mariboscardinphotography.com/houston-maternity-photographer
+
+For Family: 
+https://mariboscardinphotography.com/houston-family-photographer
